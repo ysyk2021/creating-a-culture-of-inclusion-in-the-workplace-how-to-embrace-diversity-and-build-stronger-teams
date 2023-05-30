@@ -8,4 +8,4 @@ In this book, we'll cover topics such as workplace diversity, inclusion in the w
 
 This book is like having an inclusion and diversity expert at your fingertips, ready to guide you through every aspect of creating a culture of inclusion in the workplace. By the end of this book, you'll have all the tools and strategies you need to create a workplace culture that embraces diversity, promotes collaboration, and achieves optimal results. So let's get started!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
