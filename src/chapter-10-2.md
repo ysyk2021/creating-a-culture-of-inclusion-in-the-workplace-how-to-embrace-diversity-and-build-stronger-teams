@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-==========================================================================================
 
 Reflection and self-evaluation are important components of creating a culture of inclusion in the workplace. In this chapter, we will discuss strategies for reflection and self-evaluation, including taking time to reflect on personal biases and assumptions, seeking out feedback, and committing to ongoing growth and development.
 

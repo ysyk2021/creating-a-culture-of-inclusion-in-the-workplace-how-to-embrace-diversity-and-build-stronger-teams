@@ -1,5 +1,3 @@
-Identifying Opportunities to Embrace Inclusion at Work
-====================================================================================================================
 
 Inclusion is everyone's responsibility, and individuals can play a powerful role in creating a culture of inclusivity in the workplace. In this chapter, we will discuss strategies for maximizing your inclusion skills and identifying opportunities to embrace inclusion at work.
 

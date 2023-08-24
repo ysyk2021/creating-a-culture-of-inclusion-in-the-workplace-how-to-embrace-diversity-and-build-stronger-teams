@@ -1,5 +1,3 @@
-Finding Ways to Apply Inclusion to Your Job
-=========================================================================================================
 
 Maximizing inclusion skills in the workplace involves finding ways to apply those skills to one's job. In this chapter, we will discuss strategies for identifying opportunities to apply inclusion skills in the workplace.
 

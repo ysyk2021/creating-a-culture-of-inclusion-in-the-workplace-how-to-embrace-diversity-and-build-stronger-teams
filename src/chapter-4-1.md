@@ -1,5 +1,3 @@
-The Benefits of Focusing on Inclusion
-======================================================================================
 
 Inclusion is a powerful force for success in the workplace. In this chapter, we will discuss the many benefits of focusing on inclusion.
 

@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-============================================================================
 
 Fear and uncertainty can be significant barriers to creating a culture of inclusion in the workplace. In this chapter, we will discuss strategies for addressing fear and uncertainty when it comes to inclusion.
 

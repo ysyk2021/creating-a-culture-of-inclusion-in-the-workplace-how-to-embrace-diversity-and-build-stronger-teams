@@ -1,5 +1,3 @@
-Benefits of Building a More Inclusive Workplace
-========================================================================
 
 Building a more inclusive workplace is not only the right thing to do, but it also has significant benefits for organizations. In this chapter, we will introduce the concept of inclusion and outline the benefits of building a more inclusive workplace culture.
 

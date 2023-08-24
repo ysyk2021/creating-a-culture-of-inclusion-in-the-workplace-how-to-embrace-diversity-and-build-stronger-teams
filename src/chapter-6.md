@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Inclusion Skills
-===========================================
 
 Developing your inclusion skills means understanding the principles of effective inclusion and developing strategies for leading inclusion efforts. In this chapter, we will discuss strategies for developing your inclusion skills, including understanding the principles of effective inclusion, developing strategies for leading inclusion, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

@@ -1,5 +1,3 @@
-Avoiding Information Overload
-=============================================================================
 
 Leveraging technology for inclusion can provide opportunities for employees to connect, collaborate, and access information in new and innovative ways. However, it's important to avoid information overload and ensure that technology is used in a way that promotes inclusivity. In this chapter, we will discuss strategies for leveraging technology for inclusion while avoiding information overload.
 

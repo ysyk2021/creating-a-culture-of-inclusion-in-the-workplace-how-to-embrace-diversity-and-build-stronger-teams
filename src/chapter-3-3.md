@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-==================================================================================
 
 Developing an inclusive mindset is essential for creating a culture of inclusion in the workplace. In this chapter, we will discuss strategies for setting realistic goals and objectives that promote inclusivity.
 

@@ -1,5 +1,3 @@
-Celebrating Inclusion-Based Achievements
-==================================================================================
 
 Celebrating inclusion-based achievements is essential for creating an inclusive workplace culture. In this chapter, we will discuss strategies for promoting and celebrating inclusion-based achievements to support diversity and inclusion efforts.
 

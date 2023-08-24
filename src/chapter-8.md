@@ -1,5 +1,3 @@
-Chapter 8: Creating an Inclusive Culture
-========================================
 
 Creating an inclusive culture in the workplace requires intentional effort and commitment from all employees. In this chapter, we will discuss strategies for encouraging proactive inclusion, providing training and professional development opportunities, fostering knowledge sharing and mentorship, and celebrating inclusion-based achievements.
 

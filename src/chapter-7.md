@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Inclusion
-===========================================
 
 Managing resistance to inclusion is essential for creating a workplace culture that values diversity and fosters a sense of belonging among all employees. In this chapter, we will discuss strategies for managing resistance to inclusion, including identifying common sources of resistance, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

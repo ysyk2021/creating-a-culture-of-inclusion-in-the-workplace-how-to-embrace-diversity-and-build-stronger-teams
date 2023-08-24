@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In recent years, there has been a growing recognition of the importance of inclusion in the workplace. In this chapter, we will discuss the importance of inclusion, common misconceptions about it, and the benefits of building a more inclusive workplace.
 

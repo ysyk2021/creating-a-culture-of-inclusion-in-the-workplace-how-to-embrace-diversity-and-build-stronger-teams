@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Measuring results is essential for creating a culture of inclusion in the workplace. In this chapter, we will discuss strategies for tracking progress and measuring results, including setting clear goals, collecting feedback, and using data to inform decision-making.
 

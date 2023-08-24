@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Inclusion
-===============================================
 
 Understanding the power of inclusion means recognizing how a focus on diversity and inclusion can contribute to individual and organizational success. In this chapter, we will discuss the benefits of focusing on inclusion, how inclusion contributes to success, analyzing the impact of inclusion on individuals and organizations, and addressing limiting beliefs.
 

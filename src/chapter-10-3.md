@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================
 
 Creating a culture of inclusion in the workplace requires a commitment to continuous learning and improvement. In this chapter, we will discuss the importance of continuous learning and improvement, as well as strategies for implementing these practices in your organization.
 

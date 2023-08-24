@@ -1,5 +1,3 @@
-Common Misconceptions About Inclusion
-==============================================================
 
 Inclusion is a critical component of building a diverse and welcoming workplace culture, but there are many misconceptions about what inclusion really means. In this chapter, we will explore some common misconceptions about inclusion and why it's important to understand the true meaning of inclusion in the workplace.
 

@@ -1,5 +1,3 @@
-Understanding the Science Behind Inclusion
-=========================================================================
 
 Inclusion is not just a buzzword, but a scientifically proven concept with significant benefits for individuals and organizations. In this chapter, we will explore the science behind inclusion, including how our brains process social information, and discuss why understanding this science is critical to building a more inclusive workplace culture.
 

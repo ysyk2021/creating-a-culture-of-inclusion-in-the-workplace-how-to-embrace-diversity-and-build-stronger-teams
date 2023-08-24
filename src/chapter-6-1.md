@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Inclusion
-================================================================================================
 
 Developing inclusion skills is essential for creating a culture of inclusion in the workplace. In this chapter, we will discuss the principles of effective inclusion and strategies for applying these principles in the workplace.
 

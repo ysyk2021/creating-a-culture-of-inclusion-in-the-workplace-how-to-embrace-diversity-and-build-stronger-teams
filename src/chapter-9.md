@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Inclusion
-==============================================
 
 Technology can be a powerful tool for creating a culture of inclusion in the workplace. In this chapter, we will discuss strategies for leveraging technology to enhance inclusion experiences and foster accessibility and inclusivity.
 

@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-============================================================================
 
 In order to create a culture of inclusion in the workplace, it is important to understand the power of inclusion and to address any limiting beliefs that may be present. In this chapter, we will discuss strategies for addressing limiting beliefs and promoting a more inclusive workplace culture.
 

@@ -1,5 +1,3 @@
-Identifying Inclusion Technologies and Resources
-================================================================================================
 
 Technology can be a powerful tool for promoting diversity and inclusion in the workplace. In this chapter, we will discuss strategies for identifying technologies and resources that can support inclusion efforts.
 

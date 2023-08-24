@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-============================================================================================
 
 Resistance to inclusion can be a significant challenge when it comes to creating a culture of inclusivity in the workplace. In this chapter, we will discuss strategies for overcoming resistance to inclusion.
 

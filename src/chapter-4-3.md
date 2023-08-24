@@ -1,5 +1,3 @@
-Analyzing the Impact of Inclusion on Individuals and Organizations
-===================================================================================================================
 
 Understanding the power of inclusion is essential for creating a culture of inclusion in the workplace. In this chapter, we will analyze the impact of inclusion on individuals and organizations.
 

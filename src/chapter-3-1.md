@@ -1,5 +1,3 @@
-Techniques for Cultivating an Inclusive Mindset
-===========================================================================================
 
 Developing an inclusive mindset is a critical component of creating a culture of inclusion in the workplace. In this chapter, we will discuss techniques for cultivating an inclusive mindset.
 

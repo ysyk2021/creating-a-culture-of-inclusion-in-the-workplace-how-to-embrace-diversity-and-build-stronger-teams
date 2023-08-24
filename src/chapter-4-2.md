@@ -1,5 +1,3 @@
-Recognizing How Inclusion Contributes to Success
-=================================================================================================
 
 Inclusion is more than just a buzzword; it is a key driver of success in the workplace. In this chapter, we will discuss the power of inclusion and how it contributes to organizational success.
 

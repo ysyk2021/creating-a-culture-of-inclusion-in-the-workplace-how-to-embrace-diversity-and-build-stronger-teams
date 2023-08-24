@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 Creating a culture of inclusion in the workplace requires ongoing evaluation and adaptation. In this chapter, we will discuss how organizations can adapt to changes in the workplace while maintaining their commitment to diversity and inclusion.
 

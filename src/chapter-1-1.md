@@ -1,5 +1,3 @@
-Understanding the Importance of Inclusion in the Workplace
-===================================================================================
 
 In today's diverse and globalized world, creating a culture of inclusion in the workplace is more important than ever. A workplace that values diversity and fosters an inclusive environment can lead to stronger teams, higher employee engagement, and increased innovation and creativity.
 

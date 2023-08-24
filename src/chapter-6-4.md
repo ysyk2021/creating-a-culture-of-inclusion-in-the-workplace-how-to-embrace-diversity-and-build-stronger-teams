@@ -1,5 +1,3 @@
-Fostering Continuous Learning and Improvement
-==========================================================================================
 
 Developing inclusion skills is an ongoing process that requires continuous learning and improvement. In this chapter, we will discuss strategies for fostering continuous learning and improvement when it comes to inclusion.
 

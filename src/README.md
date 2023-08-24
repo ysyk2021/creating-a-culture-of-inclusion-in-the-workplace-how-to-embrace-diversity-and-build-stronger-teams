@@ -1,4 +1,4 @@
-# Introduction
+
 
 Creating a culture of inclusion in the workplace is essential for building stronger teams and achieving business success. That's where "Creating A Culture Of Inclusion In The Workplace: How To Embrace Diversity And Build Stronger Teams" comes in.
 

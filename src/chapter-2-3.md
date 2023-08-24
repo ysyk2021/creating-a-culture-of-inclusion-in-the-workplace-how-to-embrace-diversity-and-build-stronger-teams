@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Inclusion
-============================================================================
 
 Inclusion starts with each individual, and it's important to assess our personal approach to inclusion in the workplace. In this chapter, we will explore how to assess your personal approach to inclusion, including identifying your biases and understanding how they may impact your behavior towards others. We will also discuss strategies for overcoming biases and promoting inclusion in the workplace.
 

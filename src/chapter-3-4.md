@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Inclusion
-===============================================================================================
 
 Developing an inclusive mindset involves more than just setting goals and objectives. It also requires developing empathy and compassion for others. In this chapter, we will discuss strategies for developing empathy and compassion through inclusion.
 

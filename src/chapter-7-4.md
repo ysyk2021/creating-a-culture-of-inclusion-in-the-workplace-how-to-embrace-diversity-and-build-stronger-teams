@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-=======================================================================
 
 Managing resistance to inclusion can be challenging, but fostering a growth mindset can help individuals and organizations overcome that resistance. In this chapter, we will discuss strategies for fostering a growth mindset when it comes to inclusion.
 

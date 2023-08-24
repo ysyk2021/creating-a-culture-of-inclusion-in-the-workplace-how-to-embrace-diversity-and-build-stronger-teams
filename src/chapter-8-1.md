@@ -1,5 +1,3 @@
-Encouraging Proactive Inclusion Across the Organization
-=================================================================================================
 
 Creating a culture of inclusion in the workplace requires more than just policies and programs. It requires a proactive approach that encourages all employees to embrace diversity and actively work towards building an inclusive culture. In this chapter, we will discuss strategies for encouraging proactive inclusion across the organization.
 

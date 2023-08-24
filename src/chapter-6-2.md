@@ -1,5 +1,3 @@
-Developing Strategies for Leading Inclusion
-========================================================================================
 
 Developing inclusion skills is an important component of leading inclusively in the workplace. In this chapter, we will discuss strategies for developing leadership skills that promote a culture of inclusivity.
 

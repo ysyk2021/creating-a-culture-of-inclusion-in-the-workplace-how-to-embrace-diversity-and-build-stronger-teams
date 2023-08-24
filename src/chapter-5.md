@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Inclusion Skills in the Workplace
-============================================================
 
 Maximizing your inclusion skills in the workplace means actively seeking out opportunities to promote diversity and inclusion and applying these principles to your daily work. In this chapter, we will discuss strategies for identifying opportunities to embrace inclusion at work, finding ways to apply inclusion to your job, communicating effectively through inclusion, and fostering collaboration with coworkers.
 

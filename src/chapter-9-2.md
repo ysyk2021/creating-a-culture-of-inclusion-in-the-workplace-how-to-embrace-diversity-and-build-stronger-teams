@@ -1,5 +1,3 @@
-Using Technology to Enhance Inclusion Experiences
-=================================================================================================
 
 Technology can be a powerful tool for enhancing inclusion experiences in the workplace. In this chapter, we will discuss strategies for using technology to promote diversity and inclusion and enhance the overall workplace experience.
 

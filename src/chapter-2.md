@@ -1,5 +1,3 @@
-Chapter 2: Defining Inclusion
-=============================
 
 In order to create a culture of inclusion in the workplace, it's important to have a clear understanding of what inclusion means. In this chapter, we will provide an overview of inclusion, discuss the science behind inclusion, and offer strategies for assessing your personal approach to inclusion.
 

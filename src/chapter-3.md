@@ -1,5 +1,3 @@
-Chapter 3: Developing an Inclusive Mindset
-==========================================
 
 Developing an inclusive mindset is essential for creating a workplace culture that values diversity and fosters a sense of belonging among all employees. In this chapter, we will discuss techniques for cultivating an inclusive mindset, including utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through inclusion.
 

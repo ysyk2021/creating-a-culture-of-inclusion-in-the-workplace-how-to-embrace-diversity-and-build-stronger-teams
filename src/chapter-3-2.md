@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-==========================================================================================
 
 Developing an inclusive mindset is essential for creating a culture of inclusion in the workplace. In this chapter, we will discuss how individuals can utilize positive self-talk and visualization to develop an inclusive mindset.
 

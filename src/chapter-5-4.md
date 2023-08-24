@@ -1,5 +1,3 @@
-Fostering Collaboration with Coworkers
-====================================================================================================
 
 Fostering collaboration with coworkers is essential for creating a culture of inclusion in the workplace. In this chapter, we will explore the importance of collaboration in building a diverse and inclusive workplace, discuss strategies for fostering collaboration with coworkers, and provide examples of organizations that have successfully maximized their inclusion skills to foster collaboration.
 

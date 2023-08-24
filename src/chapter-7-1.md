@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Inclusion
-==================================================================================================
 
 Resistance to inclusion can be a significant barrier to creating a culture of inclusivity in the workplace. In this chapter, we will discuss common sources of resistance to inclusion and strategies for managing that resistance.
 

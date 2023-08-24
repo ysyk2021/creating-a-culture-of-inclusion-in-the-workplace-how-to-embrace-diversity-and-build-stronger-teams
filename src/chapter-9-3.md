@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-=======================================================================================
 
 Technology can play a powerful role in fostering accessibility and inclusivity in the workplace. In this chapter, we will discuss strategies for leveraging technology to promote accessibility and inclusivity, including offering accessible communication tools, streamlining information sharing, and ensuring that all technology platforms are accessible.
 

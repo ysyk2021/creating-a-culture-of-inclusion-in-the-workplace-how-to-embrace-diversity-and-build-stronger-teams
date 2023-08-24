@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Creating a culture of inclusion in the workplace is an ongoing process that requires continuous evaluation and improvement. In this chapter, we will discuss how organizations can measure their progress towards creating an inclusive workplace, reflect on their experiences, and learn from their successes and challenges.
 

@@ -1,5 +1,3 @@
-Overview of Inclusion
-====================================================
 
 Inclusion is a critical component of building a diverse and welcoming workplace culture. In this chapter, we will define inclusion and explore its importance in the workplace. We will also discuss the benefits of creating an inclusive workplace culture and provide examples of organizations that have successfully embraced inclusion.
 

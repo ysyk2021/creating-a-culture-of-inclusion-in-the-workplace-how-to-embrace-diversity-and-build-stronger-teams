@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-============================================================================
 
 Developing inclusion skills is an ongoing process, and individuals can benefit from feedback and coaching to enhance their skills. In this chapter, we will discuss strategies for utilizing feedback and coaching to develop your inclusion skills.
 
