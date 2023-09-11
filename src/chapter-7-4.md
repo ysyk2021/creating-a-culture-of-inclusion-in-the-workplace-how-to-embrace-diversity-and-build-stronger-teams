@@ -1,5 +1,4 @@
-Chapter 5: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of fostering a growth mindset within your workplace as a crucial step towards creating a culture of inclusion. Embracing diversity and building stronger teams requires a collective mindset shift---one that encourages continuous learning, resilience, and a belief in the potential for growth in every individual.
 
